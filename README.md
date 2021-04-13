@@ -1,3 +1,3 @@
 # CPHBusiness-Funktionel
 
-Alle projekter opdateres konstant, grundet at jeg har bagud.
+Alle projekter opdateres konstant, grundet at jeg er bagud.
